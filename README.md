@@ -1,0 +1,13 @@
+### 👋 Hallo, ich bin @Finanzflunder
+
+👀 Ich bin interessiert in ...
+  * Finanzen
+
+🌱 Im Moment lerne ich ...
+  * Hebeln in den Totalverlust
+
+💞️ Ich suche nach einer Zusammenarbeit für ...
+  * Finanztools
+
+📫 How to reach me ...
+  * Reddit (u/Finanzflunder)
